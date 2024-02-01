@@ -1,1 +1,1 @@
-Contact Email: Jordan847dev@gmail.com
+Contact Email: Jordan847dev@proton.me
